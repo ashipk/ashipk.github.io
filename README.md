@@ -1,1 +1,0 @@
-# ashipk.github.io
